@@ -3,7 +3,7 @@
 - 🌱 No momento estou aprendendo como mexer no github
 - 💞️ Estou procurando colaborar em não sei...
 - 📫 Como entrar em contato comigo f2yasmim@gmail.com 
-- 😄 Pronomes: ~mim~
+- 😄 Pronomes: ...
 - ⚡ Curiosidade: sou uma pessoa muito quieta. 
 -
 
